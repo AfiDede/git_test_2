@@ -1,2 +1,2 @@
 I am practicing
-Apprediating my progress
+Appreciating my progress
